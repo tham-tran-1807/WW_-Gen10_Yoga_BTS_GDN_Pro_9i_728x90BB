@@ -1,0 +1,2 @@
+# WW_-Gen10_Yoga_BTS_GDN_Pro_9i_728x90BB
+WW_ Gen10_Yoga_BTS_GDN_Pro_9i_728x90BB
